@@ -1,1 +1,0 @@
-premium limited edition enhancements with ultra sleek design, exclusive features, and legendary status elements
